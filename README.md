@@ -15,9 +15,12 @@ BUT HERE'S VERY IMPORTANT INFO PLS
 
 I do ***NOT*** have this to be weird with kids (not because ive had those accusations b4 but just in case /gen) as someone who was groomed at around 9/10 i would rather shred my skin than do that to a child
 
-this is genuinely just me attempting to allow myself to have some whimsy back in my life and try and just have better coping mechanisms that isn't self destructive.
+This is genuinely just me attempting to allow myself to have some whimsy back in my life and try and just have better coping mechanisms that isn't self destructive.
 
 ***I FREELY BLOCK***
+
+***PLS PLS PLS INT WITH VERY EXTREME CAUTION AND CARE!!!!!***
+unfortunately fo da both of us i am sensitive sometimes but im also super slow sometimes and fail to catch onto things/when i say something that comes off as mean (im so sorry)
 
 ![c7ecf28f64a0dc2c8741e7a33b044f0a](https://github.com/user-attachments/assets/e6cb1bf8-9ab7-4a5a-9112-c60c9c948cec)
 
@@ -56,3 +59,11 @@ I TINK U SHOULD GO WATCH A QUIET PLACE: DAY ONE !!! IT'S SUCH A COMF MOVIE !!!!!
 <img width="735" height="610" alt="Untitled190_20260217022331" src="https://github.com/user-attachments/assets/911f2abe-1656-4ab6-b890-6f9e1bb5748a" />
 
 ***AND PLS ALWAYS REMEMBER TO STAY SAFE ON THE INTERWEBS.***
+![96e7814747211b77e84eca624efd743c](https://github.com/user-attachments/assets/88d1be15-7011-4286-998e-a9fb19f7e8cf)
+
+UHHHH
+
+OKAI
+
+BAIIIIIII
+WAVES
