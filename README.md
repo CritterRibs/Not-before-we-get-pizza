@@ -3,7 +3,7 @@
 HALLO HALLO HALLO PONYTOWN!!! WAVES
 ![d9a932daca5e2a205a20bf063587e1b9](https://github.com/user-attachments/assets/9025f7d9-1c9e-449a-8ce0-defca38bcf85)
 
-i am the Name Collector. i hav so many names bcs it's fun !! but das besides the point !!!!
+i am the Name Collector. i hav so many names bcs it's fun !! but das besides the point !!!! u can call me whatever is named here yesyesyes
 
 UH
 
@@ -29,4 +29,16 @@ vvv extra ofa da info:
 UHM
 i don't like profanity tbh - it makes me super uncomfy.
 i also tend to tire myself out a lot so i may shut down often but im trying!!
+i still get nervous but !! alas we ball
+![6f4189f70c07e9aba1f36634e1ae422c](https://github.com/user-attachments/assets/0454416e-a445-4dce-9e13-3f61f5a8a43c)
 
+I HAVE MORE ON MY MAIN PROFILE PLS GO READ IT (if u want,,)
+
+I THINK THAT'S IT???
+PROBABLY NOT
+
+I get distracted and confused uber super easily i am so sorry
+uh
+hmmmmmmmm
+
+,,i do liek,,, Joseph Quinn,, not parasocially i just think he's a funky dude/character yesyesyes
