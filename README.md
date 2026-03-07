@@ -66,3 +66,6 @@ I TINK U SHOULD GO WATCH A QUIET PLACE: DAY ONE !!! IT'S SUCH A COMF MOVIE !!!!!
 
 My sona! :
 
+![Screenshot_20260307_162826_Gallery](https://github.com/user-attachments/assets/c9d45164-06a2-4a30-87c6-4a3ef959222f)
+
+My main oc, Cordova! : 
