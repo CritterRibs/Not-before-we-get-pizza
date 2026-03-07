@@ -1,5 +1,3 @@
-# Not Before We Get Pizza,
-
 HALLO HALLO HALLO PONYTOWN!!! WAVES
 ![d9a932daca5e2a205a20bf063587e1b9](https://github.com/user-attachments/assets/9025f7d9-1c9e-449a-8ce0-defca38bcf85)
 
@@ -62,12 +60,9 @@ I TINK U SHOULD GO WATCH A QUIET PLACE: DAY ONE !!! IT'S SUCH A COMF MOVIE !!!!!
 ***AND PLS ALWAYS REMEMBER TO STAY SAFE ON THE INTERWEBS.***
 ![96e7814747211b77e84eca624efd743c](https://github.com/user-attachments/assets/88d1be15-7011-4286-998e-a9fb19f7e8cf)
 
-UHHHH
-
-OKAI
-
-BAIIIIIII
-WAVES
 ![a6ac8b18fbd670ad802bfe167f3b866d](https://github.com/user-attachments/assets/2d2f23ab-a854-4f91-b9e3-d1d686135d6a)
 
-might add my ocs do dis hehehehe
+# My Characters/OCs
+
+My sona! :
+
